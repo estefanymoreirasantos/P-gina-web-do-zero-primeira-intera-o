@@ -1,4 +1,4 @@
-# P-gina-web-do-zero-primeira-intera-
+# Página web do zero primeira interação
 # 👀 Descubra os 10 motivos...
 
 Você realmente sabe por que tanta gente acredita que o Neymar pode trazer o HEXA? 🇧🇷
