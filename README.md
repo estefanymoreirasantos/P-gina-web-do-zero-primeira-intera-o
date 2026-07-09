@@ -1,1 +1,1 @@
-Homenagem ao nosso menino Ney👑
+Homenagem ao menino Ney👑
